@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alepecce14
-- 👀 I’m interested in Astronomy🔭 & Mathematics
+- 👀 I’m interested in Astronomy 🔭 & Programming 🧑‍💻
 - 🌱 I’m currently learning Logistics and  Transports
 - 📫 alepecce14@gmail.com
 
